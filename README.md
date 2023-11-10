@@ -1,0 +1,1 @@
+# Yaman-Kucukyoruk-Spor-Magazasi
